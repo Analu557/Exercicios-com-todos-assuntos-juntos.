@@ -1,0 +1,1 @@
+# Exercicios-com-todos-assuntos-juntos.
